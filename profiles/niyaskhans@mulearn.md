@@ -2,7 +2,7 @@
 
 ### About Me
 
->my name is niyaskhan ,a final year BTech student in ACE college of engineering.EEE IS MY DEPARTMENT 
+>my name is niyaskhan s,a final year BTech student in ACE college of engineering.EEE IS MY DEPARTMENT 
 
 
 ## Portfolio Highlights
